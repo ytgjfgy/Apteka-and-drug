@@ -1,1 +1,0 @@
-# Apteka_Plus
